@@ -1,0 +1,1 @@
+This will be a stupid little website so i can practice being smart again
